@@ -1,0 +1,1 @@
+# Elite-competition-protest-JoGSS
